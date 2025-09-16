@@ -1,4 +1,5 @@
-## Hi there 👋
+## HELLO IM SECOND YEAR UNDERGRAUTE STUDENT
+
 
 <!--
 **Movindu0616/Movindu0616** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
